@@ -4,7 +4,8 @@
 
 
 Hi
-I am Ajay Pratap Singh
+
+I am 𝓐𝓳𝓪𝔂 𝓟𝓻𝓪𝓽𝓪𝓹 𝓢𝓲𝓷𝓰𝓱
 
 
 Currently working in Xchange software/Intone Networks.
@@ -23,9 +24,12 @@ Working on skills Network Engineer, Dev Ops Engineer Data Analyst, Business Anal
 
 
 
-Bachelors - Mechanical Engineering
 
-2016- 2020
+
+
+🅱🅰🅲🅷🅴🅻🅾🆁 - Mechanical Engineering
+
+𝟐𝟎𝟏𝟔 - 𝟐𝟎𝟐𝟎
 
 Dr. APJ Abdul kalam Technical University,
 Lucknow,
@@ -37,7 +41,8 @@ Uttar Pradesh
 
 
 
-Higher Secondary (XII)
+𝑯𝒊𝒈𝒉𝒆𝒓 𝑺𝒆𝒄𝒐𝒏𝒅𝒂𝒓𝒚 (𝑿𝑰𝑰)
+
 2014 - 2015
 
 Shyam lal Inter college nawabganj,
@@ -46,19 +51,19 @@ Unnao
 
 
 
-Contact Me
+𝓒𝓸𝓷𝓽𝓪𝓬𝓽 𝓜𝓮
 
  
-Ajay Pratap Singh
-Technical Recruiter
+🅰🅹🅰🆈 🅿🆁🅰🆃🅰🅿 🆂🅸🅽🅶🅷
+
+
+𝓢𝓻 𝓣𝓮𝓬𝓱𝓷𝓲𝓬𝓪𝓵 𝓡𝓮𝓬𝓻𝓾𝓲𝓽𝓮𝓻
 
 Phone:
-
 +91 6387852614
 
 
 Email:
-
 ajaypratap06.01@gmail.com
 
 
