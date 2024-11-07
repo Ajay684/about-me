@@ -13,20 +13,20 @@ Working on skills Network Engineer, Dev Ops Engineer Data Analyst, Business Anal
 
 
 
-2016- 2020
-
 Bachelors - Mechanical Engineering
+2016- 2020
 
 Dr. APJ Abdul kalam Technical University,
 Lucknow,
 Uttar Pradesh
 
-2014 - 2015
+![image](https://github.com/user-attachments/assets/74a231c2-8aa4-49f0-b85b-c692c372af16)
+
+
 
 Higher Secondary (XII)
+2014 - 2015
 
 Shyam lal Inter college nawabganj,
 Unnao
 
-
-Bachelor from AKTU University in mechanical engineering
