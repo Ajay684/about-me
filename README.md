@@ -1,8 +1,17 @@
 # about-me
+
+![image](https://github.com/user-attachments/assets/3c665ea7-d907-47c2-9e6e-849b57cb916f)
+
+
 Hi
 I am Ajay Pratap Singh
 
+
 Currently working in Xchange software/Intone Networks.
+
+
+![image](https://github.com/user-attachments/assets/e0092fed-d586-45f2-b9da-3107cff918a0)
+
 
 
 3+ years experience with US IT recruitment including hands on experience with different IT technologies. US Visas Tax terms ,US time zones and US job portal etc.
@@ -13,7 +22,9 @@ Working on skills Network Engineer, Dev Ops Engineer Data Analyst, Business Anal
 
 
 
+
 Bachelors - Mechanical Engineering
+
 2016- 2020
 
 Dr. APJ Abdul kalam Technical University,
@@ -24,9 +35,31 @@ Uttar Pradesh
 
 
 
+
+
 Higher Secondary (XII)
 2014 - 2015
 
 Shyam lal Inter college nawabganj,
 Unnao
+
+
+
+
+Contact Me
+
+ 
+Ajay Pratap Singh
+Technical Recruiter
+
+Phone:
+
++91 6387852614
+
+
+Email:
+
+ajaypratap06.01@gmail.com
+
+
 
